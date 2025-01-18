@@ -41,3 +41,4 @@
 - **Skype:** live:.cid.afc21522bf98cf1b  
 
 Испытайте будущее активации продуктов Microsoft с **GetCID Telegram Bot**. Быстро, удобно и без задержек! 🚀
+**Примечание:** Оплата в RUB и криптовалюте. Для помощи: Telegram: [@CIDAdmin](https://t.me/CIDAdmin), Email: [care@msconfirmationid.com](mailto:care@msconfirmationid.com), Skype: live:.cid.afc21522bf98cf1b.
